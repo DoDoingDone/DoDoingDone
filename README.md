@@ -4,7 +4,7 @@
 - 💞️ Collaborating on anything that will improve my skills is on the radar. Right now I'm still working on being useful.
 - 📫 How to reach me? 
 - 😄 Pronouns: She/ her works. 
-- ⚡ Fun fact: I was an elephant stablehand at one time in my past. Yep.
+- ⚡ Fun fact: I was an elephant stablehand at one time, long ago. Yep.
 
 <!---
 DoDoingDone/DoDoingDone is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
